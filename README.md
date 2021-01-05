@@ -3,7 +3,7 @@
 - 🔭 I’m currently working on XeneCheats.Xyz
 - 🌱 I'm still learning how to make better hacks to make the cheating community more undetected :)
 - 💬 Feel free to ask for help
-- 📫 DM on discord to help (KubaMorinkton#6969)
+- 📫 U can add me on discord (KubaMorinkton#4200)
 
 My social medias:
 - Youtube = https://youtube.com/c/KubaMorinkton
